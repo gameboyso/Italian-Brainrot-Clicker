@@ -5,3 +5,9 @@ Join the crazy Italian Brainrot meme universe in this wildly chaotic, free, unbl
 ![image](https://github.com/user-attachments/assets/3d8e8263-50d5-4f14-996e-b95b9eda4688)
 ![image](https://github.com/user-attachments/assets/6ae12690-593a-4101-81c2-d1bd4ef890a1)
 
+
+More Game
+**[Character](https://brainrotclicker.me/character)**
+
+**[Clicker Games](https://brainrotclicker.me/clicker-games)**
+
